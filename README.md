@@ -2,4 +2,5 @@
 👋
 ʕᵔᴥᵔʔ
 Hello there!
-I'd love to join the team⭐︎
+I'd love to join the team.
+
